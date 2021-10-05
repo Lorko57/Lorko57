@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Lorko57
+- 👀 I’m interested in computer science and everything that can be related to it.
+- 📫 How to reach me come on discord : LORKO#5285
